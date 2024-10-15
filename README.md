@@ -1,1 +1,1 @@
-I Can Win [Optional]
+I Can Win
